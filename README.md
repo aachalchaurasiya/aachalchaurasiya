@@ -29,3 +29,8 @@ To grow by mastering tools and techniques essential for business analysis
 Learning German to expand language and cultural horizons
 
 Committed to continuous learning and professional development
+
+Connect with Me 🔗 LinkedIn: www.linkedin.com/in/aachal-chaurasiya-2073082a6
+
+
+
